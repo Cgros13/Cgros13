@@ -1,4 +1,4 @@
-Hello, 👋🏽
+Hello 👋🏽
 <br>
 <br>
 I am Charles, 24 years old from South of France ☀️
